@@ -1,1 +1,20 @@
-# Perbaikan-UTS
+E
+E
+D
+A
+C
+D
+C
+C
+B
+C
+D
+B
+C
+A
+E
+D
+B
+A
+D
+E
